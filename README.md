@@ -1,0 +1,1 @@
+# Kuvvetler_4_5
